@@ -1,0 +1,1 @@
+# afacan-gizlilik
